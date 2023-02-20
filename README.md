@@ -51,4 +51,4 @@ With nobody. We do not share or sell any of your information.
 
 2. How can I contact you?
 
-You can contact us by sending an email to 
+You can contact us by joining https://discord.gg/sputnik 
